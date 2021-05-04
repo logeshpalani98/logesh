@@ -1,3 +1,3 @@
 ### Hey there
 
-Thanks for reading my profile! 🤣🤣
+Thanks for reading my profile!
